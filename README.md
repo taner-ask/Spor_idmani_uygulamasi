@@ -1,0 +1,1 @@
+# Spor_idmani_uygulamasi
